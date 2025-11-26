@@ -94,5 +94,5 @@
 ---
 *🔔 Ratings based on community feedback and performance benchmarks. Your experience may vary.*
 
-*For latest updates: https://myuui.com/*  
+*For latest updates: https://discord.gg/pQuCh9gkRd*  
 *Contact: system.tyler@proton.me*
